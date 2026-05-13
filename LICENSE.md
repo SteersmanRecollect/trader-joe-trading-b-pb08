@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with dydx trading bot vip Strategy | front-running-detection & staking-integration, the #1 dydx trading bot. Includes front-running-detection and
 
 
 
